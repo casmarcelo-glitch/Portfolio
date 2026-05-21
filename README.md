@@ -1,2 +1,1 @@
 # Portfolio
-## Branding Kit
